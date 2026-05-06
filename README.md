@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rafiharli
-- 👀 I’m interested in Cybersecurity World
+- 👀 I’m interested in IT world
 - 🌱 I’m currently learning Informatics Engineering
 - 💞️ I’m looking to collaborate on Making the World More Beautiful
 - 📫 How to reach me : e-mail=harlirafi@gmail.com
